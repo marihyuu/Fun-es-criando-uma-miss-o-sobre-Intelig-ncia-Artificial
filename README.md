@@ -1,1 +1,1 @@
-# Fun-es-criando-uma-miss-o-sobre-Intelig-ncia-Artificial
+missao refletindo sobre inteligencia artificial
